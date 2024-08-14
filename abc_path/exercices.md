@@ -14,15 +14,25 @@ Example:
 
 
 10
+
 qadnhwbnyw
+
 iiopcygydk
+
 bahlfiojdc
+
 cfijtdmkgf
+
 dzhkliplzg
+
 efgrmpqryx
+
 loehnovstw
+
 jrsacymeuv
+
 fpnocpdkrs
+
 jlmsvwvuih
 
 
@@ -30,14 +40,23 @@ The answer to this is...
 
 
 ----------
+
 ----------
+
 ba--------
+
 c-ij------
+
 d-hkl---z-
+
 efg-mpqryx
+
 ----no-stw
+
 --------uv
+
 ----------
+
 ----------
 
 
